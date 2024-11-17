@@ -1,5 +1,5 @@
 # 💫 About Me:
-• Currently working on web and application system<br>• Learning at [LDCU] <br>• I'm new to this platform it will take me a while<br>• I'm currently learning JavaScript, HTML and CSS for web development<br>• notif me on Malbarosa.Andre@gmail.com<br>• Hobbies are: Video Games | Sound Design | Manga/Anime
+• Currently working on web and application system<br>• Learning at [LDCU] <br>• I'm new to this platform it will take me a while<br>• I'm currently learning JavaScript, HTML and CSS for web development<br>• notif me on penitentone.silent@gmail.com<br>• Hobbies are: Video Games | Sound Design | Manga/Anime
 
 
 ## 🌐 Socials:
